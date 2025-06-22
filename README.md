@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **cokoli047@gmail.com**
 
-- 📄 Know about my experiences [https://brainuwa.github.io/AboutMe/](https://brainuwa.github.io/AboutMe/)
+- 📄 Know about my experiences [https://brainuwa.github.io/AboutMe/](https://brainuwa.github.io/Brainuwa/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
